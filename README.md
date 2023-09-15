@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi i'm Solimane 👋
 
 <!--
 **Solimane935/Solimane935** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
